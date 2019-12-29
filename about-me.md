@@ -1,6 +1,6 @@
 ## Coś o mnie
 
-####Interesuję się:
+Interesuję się:
 
 - sportem
 - muzyką
