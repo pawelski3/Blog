@@ -6,5 +6,5 @@
 - muzyką
 - komputerami
 
-cvbvcb vcbvcbvcb 23434 _cvcvcx_. 
+Chętnie jeżdzę rowerem 23434 _cvcvcx_. 
 
